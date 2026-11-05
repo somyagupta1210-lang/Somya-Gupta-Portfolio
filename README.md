@@ -1,1 +1,0 @@
-# Somya-Gupta-Portfolio
